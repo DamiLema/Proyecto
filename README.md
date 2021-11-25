@@ -32,6 +32,7 @@
       
      -Angel Garay:
       
+      Soy Angel Garay, tengo 38 años. soy Contador, trabajo en una empresa de Ss Emergencias Medicas y estoy a cargo del area Contable.
       
       
 
