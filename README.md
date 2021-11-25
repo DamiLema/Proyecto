@@ -22,9 +22,9 @@
       
       Tengo 23 años soy Venezolano viviendo en Argentina desde hace 5 años, amante del futbol, cine y la fotografia. Actualmente me dedico a los juegos con cryptomonedas.
       
-    -Andres Afre:
+    -Andres Affre:
     
-      Soy Andrés Affre. Me gustan los deportes. Trabajo en una Distribuidora de cosmética capilar. 
+      Soy Andrés Affre, tengo 23 años. Soy estudiante de programación y trabajo en una distribuidora de cosmética capilar. 
       
     -Nahuel Rios:
     
